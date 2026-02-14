@@ -1,0 +1,2 @@
+# Kkekek
+Script de roblox
